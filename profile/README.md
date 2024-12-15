@@ -8,4 +8,4 @@
 
 </div>
 
-### ❯　📍 Location: UK   🇬🇧
+### ❯　📍 Location: UK    🇬🇧
